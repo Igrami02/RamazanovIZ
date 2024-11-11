@@ -8,3 +8,4 @@
 конспект по Positive Technologies: https://docs.google.com/document/d/1vdr-oh3aNGLF1LcA1NniNgAvRbYWmznleUYYH1xbeEo/edit?tab=t.0
 Презентация по коррупции: https://drive.google.com/file/d/1a_tMppCFcamwypQfNha4eIPSW1LvVNXg/view?usp=drivesdk
 конспект информатика https://docs.google.com/document/d/1SC3l7427t8QA2keVvD-3vBz_hyn7TGvaNqpCkt73Wfs/edit?usp=drivesdk
+Конспект за 09.09.24:https://docs.google.com/document/d/1ynhnQFqc_NOVc91-xo5JFw75mOU0tufVtDVlhDWQmrE/edit?usp=drivesdk
