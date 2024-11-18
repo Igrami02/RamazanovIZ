@@ -9,3 +9,4 @@
 Презентация по коррупции: https://drive.google.com/file/d/1a_tMppCFcamwypQfNha4eIPSW1LvVNXg/view?usp=drivesdk
 конспект информатика https://docs.google.com/document/d/1SC3l7427t8QA2keVvD-3vBz_hyn7TGvaNqpCkt73Wfs/edit?usp=drivesdk
 Конспект за 09.09.24:https://docs.google.com/document/d/1ynhnQFqc_NOVc91-xo5JFw75mOU0tufVtDVlhDWQmrE/edit?usp=drivesdk
+конспект по степику питон : https://docs.google.com/document/d/1m2-EwxVEi_eW4h_Zgl2HwGuTjPPEzQiQEnxfvwL2ndc/edit?usp=drivesdk
