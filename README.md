@@ -12,3 +12,4 @@
 конспект по степику питон : https://docs.google.com/document/d/1m2-EwxVEi_eW4h_Zgl2HwGuTjPPEzQiQEnxfvwL2ndc/edit?usp=drivesdk
 КОНТРОЛЬНАЯ РАБОТА https://docs.google.com/document/d/1g3dB6mU92dGIwX-Az97BI_o88I0nin5iUmb3QaHigDU/edit?tab=t.0
 сертифакаты https://drive.google.com/file/d/1qLt3uDLF7tjH8XAN6qFatx-VuSLF_-fM/view?usp=drive_link; https://drive.google.com/file/d/1O-Zf3TMyf7j6G0KYfZ6MVo8c8oSCjt0Z/view?usp=drive_link
+https://ru.yougile.com/team/9814ffd60005/%D0%9F%D1%80%D0%B8%D0%BC%D0%B5%D1%80-%D0%BF%D1%80%D0%BE%D0%B5%D0%BA%D1%82%D0%B0
